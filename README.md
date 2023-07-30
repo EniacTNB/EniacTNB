@@ -1,3 +1,4 @@
+[![Typing SVG](https://readme-typing-svg.demolab.com/?lines=Dream IT;Chase IT;Code IT)](https://git.io/typing-svg)
 ### Hi there 👋
 
 <!--
