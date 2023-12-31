@@ -3,7 +3,7 @@
 
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&duration=1000&pause=100&color=09F722&center=true&vCenter=true&multiline=true&width=435&height=100&lines=Dream+IT.+%F0%9F%92%BB;Chase+IT.+%F0%9F%92%BB;Code+IT.+%F0%9F%92%BB)](https://git.io/typing-svg)
 
-喝茶🍵、烟斗客🚬、看书📖、电影🎬
+喝茶🍵、看书📖、电影🎬
 
 屈身守分，以待天时
 
